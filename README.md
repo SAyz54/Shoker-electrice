@@ -8,7 +8,9 @@
  
  i have created this virus for give them to plastine and use it to cyber atack on isreal
  
- so be cearfull 😈
+ so be cearfull, if you exécute the bat the virus is in freecookei
+.asm and will be exexuted 😈
+ 
  cause Anonymous are standing with plastine ♥️
  
  just like thats i will create virus and i will share it with you guys
